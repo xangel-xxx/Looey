@@ -26,7 +26,7 @@ $${\color{#00faff} ┌・・・・・・・・・・・・・・・・・┐ }$$
 
 $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
-$${\color{#0080ff} ᯓ \space C \space + \space H \space , \space Cover \space , \space & \space INT \space heavily \space encouraged \space ! }$$
+$${\color{#0080ff} ᯓ \space C+H \space , \space Cover \space , \space & \space INT \space heavily \space encouraged \space ! }$$
 
 
 ![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)
@@ -42,12 +42,10 @@ $${\color{#8900ff} ~ \space "We'll \space be \space one \space big \space family
 <summary>$${\color{#ff004d} ꒱𝜗𝜚꒱ \space About \space Me \space ! \space ! \space ꒰𝜗𝜚꒰ }$$</summary>
 $${\color{#00ecff} ☆ \space LOVES \space Snowcones\space ! }$$
 $${\color{#ff9700} ☆ \space LOVES \space Candy \space ! }$$
-$${\color{#8800ff} ☆ \space Likes \space Comedy \space shows/plays \space ! }$$
-$${\color{#ff0085} ☆ \space LOVES \space friends\space ! }$$
+  $${\color{#ff0085} ☆ \space LOVES \space friends\space ! }$$
 $${\color{#fffa00} ☆ \space LOVES \space Colors \space ! }$$
 $${\color{#ff00e9} ☆ \space Likes \space Balloons \space ! }$$
 $${\color{#1cff00} ☆ \space Panromantic \space , \space Cupiosexual \space ! }$$
-$${\color{#00ff86} ☆ \space Enjoys \space distracting \space on \space 1 \space or \space 2 \space hearts \space ! }$$
 </details>
 
 <details>
@@ -72,7 +70,10 @@ $${\color{#ac00ff} ⟡౨ৎ \space Racists \space , \space Predators \space , H
 
 <details>
 <summary>$${\color{#00a6ff} 𓏵✩࿐ \space Extras \space / \space Interests \space ! \space ! \space ✩࿐𓏵 }$$</summary>
-$${\color{#d600ff}
+$${\color{#d600ff} ⁺˙⊹ \space Enjoys \space distracting \space on \space 1 \space or \space 2 \space hearts \space ! }$$
+$${\color{#00ff86} ⁺˙⊹ \space Comedy \space shows/plays \space ! }$$
+$${\color{#8800ff} ⁺˙⊹ \space Drawing \space , \space Coloring ! }$$
+$${\color{#e9e358} ⁺˙⊹ \space Acting \space , \space Being \space on \space stage ! }$$
 </details>
 
 

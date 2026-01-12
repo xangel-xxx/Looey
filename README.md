@@ -7,7 +7,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF6A00&width=435&lines=%22++My+life+is+a+party+!++%22;%22++Ik+this+pretty+scene+girl+!+!++%22)](https://git.io/typing-svg)
 
 
-$${\color{#ff1700} ════ \space ʚ \space LOOEY \space THE \space BALLOON ɞ \space ════ }$$
+$${\color{#ff1700} ════ 🎈 \space ʚ \space LOOEY \space THE \space BALLOON ɞ \space 🍭 \space ════ }$$
 
 ![blinkiesCafe-Qk](https://github.com/user-attachments/assets/5f2f3473-402e-44bb-a699-7ad3d8267c74)
 ![blinkiesCafe-SZ](https://github.com/user-attachments/assets/f60106ac-deae-4a61-b901-a362d211a749)
@@ -15,6 +15,14 @@ $${\color{#ff1700} ════ \space ʚ \space LOOEY \space THE \space BALLOON
 ![blinkiesCafe-EL](https://github.com/user-attachments/assets/2d5121ab-fb6c-43cb-99ae-b0b9cd6edc7e)
 
 $${\color{#7700ff} └・・・・・・・・・・・・・・・・・┘ }$$
+
+$${\color{#} Looey \space // \space Crab }$$
+
+
+<img width="500" height="500" alt="8b136d8405fb0fb8a798c8f840c70a0c-removebg-preview2" src="https://github.com/user-attachments/assets/735c7c3c-5fb1-400b-9fab-efd9004c053f" />
+
+
+$${\color{#} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
 
 

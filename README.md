@@ -95,6 +95,8 @@
 <details>
 <summary>$${\color{#fffa00} Credits \space ! \space ! \space ⚝ }$$</summary>
 $${\color{#ff00e9} 𖦹 \space Banner \space : \space ୧ \space ‧₊˚ \space trixi \space ⋅𓍢ִ໋🐾* \space on \space Pinterest \space ! \space 𖦹 }$$
+
+$${\color{#ff00ed} 𖥔. \space Trinket \space : \space Dandy's \space World \space on \space Roblox \space (Made by Qwel/Qwelver) \space .𖥔 }$$
 </details>
 
 </div>

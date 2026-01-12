@@ -7,7 +7,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FF6A00&width=435&lines=%22++My+life+is+a+party+!++%22;%22++Ik+this+pretty+scene+girl+!+!++%22)](https://git.io/typing-svg)
 
 
-
+$${\color{#ff1700} ════ \space ʚ \space LOOEY \space THE \space BALLOON ɞ \space ════ }$$
 
 
 

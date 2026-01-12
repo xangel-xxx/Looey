@@ -47,7 +47,7 @@ $${\color{#ff0085} ☆ \space LOVES \space friends\space ! }$$
 $${\color{#fffa00} ☆ \space LOVES \space Colors \space ! }$$
 $${\color{#ff00e9} ☆ \space Likes Balloons \space ! }$$
 $${\color{#1cff00} ☆ \space Panromantic \space , \space Cupiosexual \space ! }$$
-$${\color{#00ff86? ☆ \space Enjoys \space distracting \space on \space 1 \space or \space 2 \space hearts \space ! }$$
+$${\color{#00ff86} ☆ \space Enjoys \space distracting \space on \space 1 \space or \space 2 \space hearts \space ! }$$
 </details>
 
 <details>

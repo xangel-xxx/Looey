@@ -41,15 +41,15 @@ $${\color{#00ecff} Dawg, \space irdk \space what \space I'm \space supposed \spa
 
 <details>
 <summary>$${\color{#ff0077} 𖦹⟡ \space DNI's \space INT'S \space IWC's \space ! \space ! \space ⟡𖦹 }$$</summary>
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Doubles \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Introjecs(intj) \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Fictives \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Other \space Systems \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ Mulrishippers \space INT \space (please) \space ! }$$
 
 $${\color{#9c00ff} ⟡౨ৎ
 
@@ -57,6 +57,7 @@ $${\color{#9c00ff} ⟡౨ৎ
 
 $${\color{#9c00ff} ⟡౨ৎ
 </details>
+
 
 <details>
 <summary>$${\color{#00a6ff} 𓏵✩࿐ \space Extras \space / \space Interests \space ! \space ! \space ✩࿐𓏵 }$$</summary>

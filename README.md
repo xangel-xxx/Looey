@@ -24,6 +24,8 @@ $${\color{#ffe000} Looey \space // \space Crab }$$
 
 $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
+$${\color{#0080ff} C \space × \space H \space + \space Cover \space & \space INT \space heavily \space encouraged \space ! \space ! }$$
+
 
 ![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)
 
@@ -49,13 +51,13 @@ $${\color{#9c00ff} ⟡౨ৎ \space Fictives \space INT \space ! }$$
 
 $${\color{#9c00ff} ⟡౨ৎ \space Other \space Systems \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ Mulrishippers \space INT \space (please) \space ! }$$
+$${\color{#9c00ff} ⟡౨ৎ \space Multishippers \space INT \space (please) \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Pony \space Town \space ; \space Tutorial \space Skins \space , \space YouTube \space Skins \space IW(E)C \space . }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Proshippers \space , \space Darkshippers \space DNI \space . }$$
 
-$${\color{#9c00ff} ⟡౨ৎ
+$${\color{#9c00ff} ⟡౨ৎ \space Racists \space , \space Predators \space , Homophobes \space , Transphobes \space DNI \space . }$$
 </details>
 
 

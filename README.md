@@ -96,7 +96,9 @@
 <summary>$${\color{#fffa00} Credits \space ! \space ! \space ⚝ }$$</summary>
 $${\color{#ff00e9} 𖦹 \space Banner \space : \space ୧ \space ‧₊˚ \space trixi \space ⋅𓍢ִ໋🐾* \space on \space Pinterest \space ! \space 𖦹 }$$
 
-$${\color{#8900ff} 𖥔. \space Trinket \space : \space Dandy's \space World \space on \space Roblox \space (Made \space by \space Qwel/Qwelver) \space .𖥔 }$$
+$${\color{#8900ff} 𖥔. \space Trinket \space : \space Dandy's \space World \space on \space Roblox \space (Made \space by \space Qwel/Qwelver) \space ! \space .𖥔 }$$
+
+$${\color{#00ffeb} ✩ ₊˚ \space Widget/Graphic \space : \space 🌙 \space getmeabeer \space on \space Pinterest \space ! \space ✩ ₊˚ }$$
 </details>
 
 </div>

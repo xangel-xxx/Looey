@@ -16,13 +16,13 @@ $${\color{#ff1700} ════ 🎈 \space ʚ \space LOOEY \space THE \space BA
 
 $${\color{#7700ff} └・・・・・・・・・・・・・・・・・┘ }$$
 
-$${\color{#} Looey \space // \space Crab }$$
+$${\color{#ffe000} Looey \space // \space Crab }$$
 
 
 <img width="500" height="500" alt="8b136d8405fb0fb8a798c8f840c70a0c-removebg-preview2" src="https://github.com/user-attachments/assets/735c7c3c-5fb1-400b-9fab-efd9004c053f" />
 
 
-$${\color{#} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
+$${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
 
 

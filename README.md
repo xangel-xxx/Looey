@@ -28,7 +28,7 @@ $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space
 ![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)
 
 
-$${\color{#8900ff} The \space Villiage \space by \space Wrabel \space & \space Freaks \spaceby \space Jordan \space Clarke }$$
+$${\color{#8900ff} "We'll \space be \space one \space big \space family \space - \spaceof \space freaks. \space Like \space you, \space and \space me!" }$$
 
 
 $${\color{#ff00be} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$

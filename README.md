@@ -26,7 +26,7 @@ $${\color{#00faff} ┌・・・・・・・・・・・・・・・・・┐ }$$
 
 $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
-$${\color{#0080ff} ᯓ \space C+H \space , \space Cover \space , \space & \space INT \space heavily \space encouraged \space ! }$$
+$${\color{#3a6ab4} ◍ \space = \space ✩ \space C \space x \space H \space , \space Cover \space , \space & \space INT \space heavily \space enc \space ! \space ! }$$
 
 
 ![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)

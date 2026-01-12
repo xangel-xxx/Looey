@@ -40,7 +40,11 @@ $${\color{#8900ff} ~ \space "We'll \space be \space one \space big \space family
 
 <details>
 <summary>$${\color{#ff004d} ꒱𝜗𝜚꒱ \space About \space Me \space ! \space ! \space ꒰𝜗𝜚꒰ }$$</summary>
-$${\color{#00ecff} Dawg, \space irdk \space what \space I'm \space supposed \space to \space say \space here.. \space Anyway, \space my \space name \space is \space Looey, \space obviously. \space But \space you \space can \space call \space me \space crab, \space since \space Yatta \space and \space Blot \space call \space me \space that. \space I \space freaking \space LOVE \space snow \space cones, \space candy, \space drama \space shows/plays, \space friends, \space \space and \space colors \space ! \space ! }$$
+$${\color{#00ecff} ☆ \space LOVES \space Snowcones\space ! }$$
+$${\color{#ff9700} ☆ \space Candy\space ! }$$
+$${\color{#8800ff} ☆ \space Comedy \space shows/plays \space ! }$$
+$${\color{#ff0085} ☆ \space Driends\space ! }$$
+$${\color{#fffa00} ☆ \space Colors \space ! }$$
 </details>
 
 <details>

@@ -92,5 +92,9 @@
 
 ![image0](https://github.com/user-attachments/assets/08ef78b9-47b0-471d-b406-71283dbcb56a)
 
+<details>
+<summary>$${\color{#fffa00} Credits \space ! \space ! \space ⚝ }$$</summary>
+$${\color{#ff00e9} 𖦹 \space Banner \space : \space ୧ \space ‧₊˚ \space trixi \space ⋅𓍢ִ໋🐾* \space on \space Pinterest \space ! \space 𖦹 }$$
+</details>
 
 </div>

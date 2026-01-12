@@ -25,6 +25,15 @@ $${\color{#ffe000} Looey \space // \space Crab }$$
 $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space Balloon \space prns \space ! \space ! }$$
 
 
+![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)
+
+
+$${\color{#8900ff} [ \space Come \space to \space the \space land \space of \space the \space lost \space and \space lonly, \space don't \space be \space afraid \spacewe'll \space be \space one \space big \space family \space - \space Of \space freaks. \space Like \space you, \space and \space me \space ! \space ]
+
+
+$${\color{#ff00be} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
+
+
 
 
 

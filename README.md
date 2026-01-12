@@ -28,87 +28,43 @@ $${\color{#c3ff00} He \space / \space They \space ,, \space Toon \space / \space
 ![image21](https://github.com/user-attachments/assets/7850b8b6-1ba0-45e0-8c35-3a7e2ee70bd6)
 
 
-$${\color{#8900ff} "We'll \space be \space one \space big \space family \space - \spaceof \space freaks. \space Like \space you, \space and \space me!" }$$
+$${\color{#8900ff} ~ \space "We'll \space be \space one \space big \space family \space - \space of \space freaks. \space Like \space you, \space and \space me \space !" }$$
+
+
+![image19](https://github.com/user-attachments/assets/090b42f6-86db-4d5a-a3ff-488777020008)
+
+
+<details>
+<summary>$${\color{#ff004d} ꒱𝜗𝜚꒱ \space About \space Me \space ! \space ! \space ꒰𝜗𝜚꒰ }$$</summary>
+$${\color{#00ecff} Dawg, \space irdk \space what \space I'm \space supposed \space to \space say \space here.. \space Anyway, \space my \space name \space is \space Looey, \space obviously. \space But \space you \space can \space call \space me \space crab, \space since \space Yatta \space and \space Blot \space call \space me \space that. \space I \space freaking \space LOVE \space snow \space cones, \space candy, \space drama \space shows/plays, \space friends, \space \space and \space colors \space ! \space !
+</details>
+
+<details>
+<summary>$${\color{#ff0077} 𖦹⟡ \space DNI's \space INT'S \space IWC's \space ! \space ! \space ⟡𖦹 }$$</summary>
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+
+$${\color{#9c00ff} ⟡౨ৎ
+</details>
+
+<details>
+<summary>$${\color{#00a6ff} 𓏵✩࿐ \space Extras \space / \space Interests \space ! \space ! \space ✩࿐𓏵 }$$</summary>
+$${\color{#d600ff}
+</details>
 
 
 $${\color{#ff00be} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 

@@ -41,10 +41,14 @@ $${\color{#8900ff} ~ \space "We'll \space be \space one \space big \space family
 <details>
 <summary>$${\color{#ff004d} ꒱𝜗𝜚꒱ \space About \space Me \space ! \space ! \space ꒰𝜗𝜚꒰ }$$</summary>
 $${\color{#00ecff} ☆ \space LOVES \space Snowcones\space ! }$$
-$${\color{#ff9700} ☆ \space Candy\space ! }$$
-$${\color{#8800ff} ☆ \space Comedy \space shows/plays \space ! }$$
-$${\color{#ff0085} ☆ \space Driends\space ! }$$
-$${\color{#fffa00} ☆ \space Colors \space ! }$$
+$${\color{#ff9700} ☆ \space LOVES \space Candy \space ! }$$
+$${\color{#8800ff} ☆ \space Likes \space Comedy \space shows/plays \space ! }$$
+$${\color{#ff0085} ☆ \space LOVES \space friends\space ! }$$
+$${\color{#fffa00} ☆ \space LOVES \space Colors \space ! }$$
+
+$${\color{#ff00e9} ☆ \space Balloons \space ! }$$
+$${\color{#
+$${\color{#
 </details>
 
 <details>
@@ -74,7 +78,6 @@ $${\color{#d600ff}
 
 
 $${\color{#ff00be} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
-$${\color{#ff00e9} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
 
 
 ![image4](https://github.com/user-attachments/assets/cb2ad4c3-38ba-4f17-94c0-73a5a4233866)

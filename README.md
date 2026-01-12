@@ -99,6 +99,8 @@ $${\color{#ff00e9} 𖦹 \space Banner \space : \space ୧ \space ‧₊˚ \space
 $${\color{#8900ff} 𖥔. \space Trinket \space : \space Dandy's \space World \space on \space Roblox \space (Made \space by \space Qwel/Qwelver) \space ! \space .𖥔 }$$
 
 $${\color{#00ffeb} ✩ ₊˚ \space Widget/Graphic \space : \space 🌙 \space getmeabeer \space on \space Pinterest \space ! \space ✩ ₊˚ }$$
+
+$${\color{#0028ff} PFP \space : \space ᯓ \space raymq2 \space on \space TikTok \space ! \space ᯓ }$$
 </details>
 
 </div>

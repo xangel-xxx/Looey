@@ -18,6 +18,8 @@ $${\color{#7700ff} └・・・・・・・・・・・・・・・・・┘ }$$
 
 $${\color{#ffe000} Looey \space // \space Crab }$$
 
+$${\color{#00faff} ┌・・・・・・・・・・・・・・・・・┐ }$$
+
 
 <img width="500" height="500" alt="8b136d8405fb0fb8a798c8f840c70a0c-removebg-preview2" src="https://github.com/user-attachments/assets/735c7c3c-5fb1-400b-9fab-efd9004c053f" />
 
@@ -45,19 +47,19 @@ $${\color{#00ecff} Dawg, \space irdk \space what \space I'm \space supposed \spa
 <summary>$${\color{#ff0077} 𖦹⟡ \space DNI's \space INT'S \space IWC's \space ! \space ! \space ⟡𖦹 }$$</summary>
 $${\color{#9c00ff} ⟡౨ৎ \space Doubles \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Introjecs(intj) \space INT \space ! }$$
+$${\color{#00ffc3} ⟡౨ৎ \space Introjecs(intj) \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Fictives \space INT \space ! }$$
+$${\color{#6aff00} ⟡౨ৎ \space Fictives \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Other \space Systems \space INT \space ! }$$
+$${\color{#eaff00} ⟡౨ৎ \space Other \space Systems \space INT \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Multishippers \space INT \space (please) \space ! }$$
+$${\color{#b200ff} ⟡౨ৎ \space Multishippers \space INT \space (please) \space ! }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Pony \space Town \space ; \space Tutorial \space Skins \space , \space YouTube \space Skins \space IW(E)C \space . }$$
+$${\color{#002aff} ⟡౨ৎ \space Pony \space Town \space ; \space Tutorial \space Skins \space , \space YouTube \space Skins \space IW(E)C \space . }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Proshippers \space , \space Darkshippers \space DNI \space . }$$
+$${\color{#ff1700} ⟡౨ৎ \space Proshippers \space , \space Darkshippers \space DNI \space . }$$
 
-$${\color{#9c00ff} ⟡౨ৎ \space Racists \space , \space Predators \space , Homophobes \space , Transphobes \space DNI \space . }$$
+$${\color{#ac00ff} ⟡౨ৎ \space Racists \space , \space Predators \space , Homophobes \space , Transphobes \space DNI \space . }$$
 </details>
 
 
@@ -68,7 +70,7 @@ $${\color{#d600ff}
 
 
 $${\color{#ff00be} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
-
+$${\color{#ff00e9} ꒰⁐⁐⁐⁐⁐⁐୨୧⁐⁐⁐⁐⁐⁐꒱ }$$
 
 
 ![image4](https://github.com/user-attachments/assets/cb2ad4c3-38ba-4f17-94c0-73a5a4233866)
